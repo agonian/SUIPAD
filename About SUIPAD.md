@@ -18,8 +18,8 @@ SuiPad has a strong value proposition, offering a low fee structure, high transa
 Feedback:
 SuiPad has received positive feedback from investors and cryptocurrency startups. Investors appreciate the low fee structure and the seamless user experience, while cryptocurrency startups appreciate the ability to raise funds without having to go through a centralized intermediary. The team behind SuiPad has been responsive to user feedback and has implemented several improvements based on user suggestions.
 
-SuiPad Crew3 event:
-Recently, SuiPad hosted the Crew3 event, which was a huge success. The event was designed to showcase the platform's capabilities and to provide users with an opportunity to earn rewards. The event included a range of activities, including a trading competition, a token sale, and a community giveaway. The event was well-received by the community, and it helped to raise awareness about the platform.
+SuiPad Zealy event:
+Recently, SuiPad hosted the Zealy event, which was a huge success. The event was designed to showcase the platform's capabilities and to provide users with an opportunity to earn rewards. The event included a range of activities, including a trading competition, a token sale, and a community giveaway. The event was well-received by the community, and it helped to raise awareness about the platform.
 
 Conclusion:
 SuiPad is an exciting new IDO platform that offers a range of features that make it a user-friendly platform for both investors and cryptocurrency startups. The platform has a strong value proposition, and the team behind SuiPad has a solid track record. However, it is still in its early stages, and there is a lot of competition in the IDO platform space. Nevertheless, SuiPad has the potential to become a major player in the DeFi ecosystem, and we look forward to seeing how
